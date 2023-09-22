@@ -1,4 +1,4 @@
 Ezequiel Calvo
 Gabriel Robles
-Santiago Barrios
+Santiago Barrios, 20 años, Lanus
 Edgardo De La Cruz
